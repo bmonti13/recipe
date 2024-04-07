@@ -1,3 +1,4 @@
+Let's begin!
 Ingredients
 3 medium-large very ripe bananas with brown spots 1 cup mashed
 3 large eggs
@@ -11,3 +12,4 @@ Ingredients
 3 cups almond flour not almond meal
 Cooking spray I use Misto
 Source: URL
+Enjoy my recipe!
